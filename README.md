@@ -6,6 +6,8 @@
 - 😄 Pronouns: Mr Gamble Casinohead 🤑🤑🤑
 - ⚡ Fun fact: GAMBLING!!!! 🤑🤑🤑 I SPENT 10000000 BILLION DOLLARS ON GAMBLING 🤑🤑🤑
 
+
+- the hell was I smoking when i made that :Sob:
 <!---
 E1bzy/E1bzy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
